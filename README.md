@@ -2,4 +2,4 @@
 
 Hi, I will be sharing my learnings of each day here
 
-Day 1 was quite productive as you see ;)
+Day 1 was quite productive as you can see ;)
